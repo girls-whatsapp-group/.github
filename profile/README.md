@@ -5,8 +5,8 @@ hello friends I will share here Girls WhatsApp group are a great way to connect 
 
 ### List of the Girls WhatsApp Group Links
 
-- **girl Wp Group 1** [Join Now](#)
-- **only girls Wp Group 2** [Join Now](#)
+- **girl Wp Group 1** [Join Now](https://tazagame.site/)
+- **only girls Wp Group 2** [Join Now](https://tazagame.site/)
 
 
 ### Why Join Girls WhatsApp Group?
